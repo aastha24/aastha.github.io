@@ -1,2 +1,0 @@
-# aastha.github.io
-Resume
